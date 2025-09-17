@@ -15,3 +15,4 @@ https://github.com/varadbhogayata/varadbhogayata.github.io
 
 
 <img width="1015" height="703" alt="image" src="https://github.com/user-attachments/assets/c3ac7dbd-2153-42ba-b78c-a953db169701" />
+<img width="1404" height="785" alt="image" src="https://github.com/user-attachments/assets/50fec822-e196-48b7-87a6-c0b0288dd772" />
